@@ -1,4 +1,4 @@
-# minihuesofficial# Mini Hues Official
+# minihuesofficial # Mini Hues Official
 
 **Website:** [minihuesofficial.com](https://minihuesofficial.com)  
 **Tagline:** Designer wear for little ones, crafted with love in limited editions.
